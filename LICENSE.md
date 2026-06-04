@@ -1,4 +1,4 @@
-#  
+#  Experience bridger western like never before with new bridger western Scripts, the #1 Script. Includes auto-upgrade and silent aim for unbeatable
 
 
 
